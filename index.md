@@ -2,7 +2,7 @@
 
 Over the past two years (2018-2020) a conversation about
 [academic bullying](https://en.wikipedia.org/wiki/Workplace_bullying_in_academia#cite_note-6)
-has developed rapidly in the scientific media. Some activists claim that such
+has developed rapidly in academic science. Some activists claim that such
 bullying is widespread in the scientific community and under-studied. Behaviors
 fitting at least one definition of bullying have occurred before in the BISB
 program, so BISB students would do well to pay attention to these developments.
