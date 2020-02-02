@@ -27,3 +27,7 @@ Here is a recent video about bullying and harassment from the Royal Society
 of Chemistry:
 
 - [What is bullying and harassment?](https://www.youtube.com/watch?v=bZmmp7i9Tsc&feature=youtu.be)
+
+Here is an article with advice for department chairs:
+
+- [Mediating in the Academic Bully Culture: The Chair's Responsibility to Faculty and Graduate Students](https://tomprof.stanford.edu/posting/992)
